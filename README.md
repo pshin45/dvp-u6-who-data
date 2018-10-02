@@ -1,1 +1,0 @@
-# dvp-u6-who-data
